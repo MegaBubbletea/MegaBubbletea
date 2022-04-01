@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MegaBubbletea
-- 👀 I’m interested in Kdrama.
+- 👀 I’m interested in comptuers, technology, K-Drama.
 - 🌱 I’m currently learning Korean
 - 💞️ I’m looking to collaborate on anything awesome.
 - 📫 How to reach me ... DMs?
